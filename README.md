@@ -8,4 +8,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 001100978513@al.educacacao.sp.gov.br
 
-![](<blockquote class="imgur-embed-pub" lang="en" data-id="TzPvMRe"  ><a href="//imgur.com/TzPvMRe">Amphibia is channeling my inner ten-year-old</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>)
+![]https://imgur.com/TzPvMRe
